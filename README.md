@@ -13,7 +13,7 @@ Assista ao vídeo tutorial para aprender como efetuar a instalação da nossa lo
 
 Visite nossa loja online para conferir nossos produtos e serviços:
 
-[Link para a sua loja](https://hardnetwork.com.br)
+[Link para a loja](https://hardnetwork.com.br)
 
 ## 🤝 Contato
 
